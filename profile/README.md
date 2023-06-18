@@ -1,1 +1,1 @@
-![BLACK PARAGON](profile/Banner.png)
+![BLACK PARAGON](profile/Logo - Banner.png)
